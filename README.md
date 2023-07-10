@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @miirelly1
+- 👋 Hi, I’m @miirelly1, Mirelly Barbosa
 - 👀 I’m interested in books
 - 🌱 I’m currently learning design
 - 💞️ I try to collaborate in my professional growth
